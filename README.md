@@ -1,6 +1,6 @@
 Namaste ! 🤗
 
-I'm Light 👻, a coding enthusiast, data science explorer, and animation aficionado. 
+I'm Light 👻, a coding enthusiast, data science explorer and animation aficionado. 
 Welcome to my GitHub profile!
 
 About Me: 🚀
