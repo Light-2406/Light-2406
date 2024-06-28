@@ -1,4 +1,4 @@
-I am Light aka Kira 💀, a visionary and master strategist. My code is my weapon, and my intellect is my shield. I seek perfection and precision in all that I create. 
+Hi ! I am Light aka Kira 💀, a visionary and master strategist. My code is my weapon, and my intellect is my shield. I seek perfection and precision in all that I create. 
 Join me, and together we can reshape the world, one line of code at a time.
 
 
